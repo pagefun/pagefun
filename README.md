@@ -4,7 +4,7 @@
 #### 线路三：https://hl.eroqobih.xyz
 #### 线路四：https://hl.flcpadyt.xyz
 #### 线路五：https://hl.xtblxeub.xyz
-#### 永久吃瓜地址：bzhl.cc
+#### 永久吃瓜地址：https://bzhl.cc
 
 ## 商务合作 联系电报（Telegram）
 #### 官方TG群 https://t.me/hl8g1688
