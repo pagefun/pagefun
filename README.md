@@ -1,4 +1,4 @@
-## 扒哥黑料 最新地址 （更新时间：2023-8-8 18:18:20）
+## 爆走黑料 最新地址 （更新时间：2023-8-8 18:18:20）
 #### 线路一：https://hl.wwqsghjm.xyz
 #### 线路二：https://hl.lsgwjwhn.xyz
 #### 线路三：https://hl.eroqobih.xyz
