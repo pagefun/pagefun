@@ -1,10 +1,10 @@
 ## 扒哥黑料 最新地址 （更新时间：2023-8-8 18:18:20）
-#### 线路一：https://hl.w32kwhu.xyz
-#### 线路二：https://hl.tdv6wk1.xyz
-#### 线路三：https://hlw.i52hzzv.xyz
-#### 线路四：https://hlw.48de76v.xyz
-#### 线路五：https://hlw.ri8l78i.xyz
-#### 永久吃瓜地址：https://8ghl.me
+#### 线路一：https://hl.wwqsghjm.xyz
+#### 线路二：https://hl.lsgwjwhn.xyz
+#### 线路三：https://hl.eroqobih.xyz
+#### 线路四：https://hl.flcpadyt.xyz
+#### 线路五：https://hl.xtblxeub.xyz
+#### 永久吃瓜地址：bzhl.cc
 
 ## 商务合作 联系电报（Telegram）
 #### 官方TG群 https://t.me/hl8g1688
