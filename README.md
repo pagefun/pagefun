@@ -1,9 +1,10 @@
 ## 爆走黑料 最新地址 （更新时间：2023-8-8 18:18:20）
-#### 线路一：https://hl.wwqsghjm.xyz
-#### 线路二：https://hl.lsgwjwhn.xyz
-#### 线路三：https://hl.eroqobih.xyz
-#### 线路四：https://hl.flcpadyt.xyz
-#### 线路五：https://hl.xtblxeub.xyz
+#### 线路一：https://0821.tjicydisfq.shop
+#### 线路二：https://0821.iwqxyyaugl.shop
+#### 线路三：https://0821.bpjybuhacn.shop
+#### 线路四：https://821.gzqsfjyevt.shop
+#### 线路五：https://821.ifmvtffyqy.shop
+#### 线路六：https://821.dzftmdqcrw.shop
 #### 永久吃瓜地址：https://bzhl.cc
 
 ## 商务合作 联系电报（Telegram）
