@@ -1,4 +1,4 @@
-## 爆走黑料 最新地址 （更新时间：2023-8-8 18:18:20）
+## 爆走黑料 最新地址 （更新时间：2024-11-28 21:52:20）
 #### 线路一：https://109.iwqxyyaugl.shop
 #### 线路二：https://hl-normal.ifmvtffyqy.shop
 #### 永久吃瓜地址：https://bzhl.cc
